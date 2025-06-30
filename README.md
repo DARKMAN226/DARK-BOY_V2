@@ -1,6 +1,6 @@
-   DARK-BOY_V2 👻 UN BOT TRES PUISSANT DEV BY DARK-DEV🍷 
+##DARK-BOY_V2 👻 UN BOT TRES PUISSANT DEV BY DARK-DEV🍷 
 
-[![elly-MD Logo](https://files.catbox.moe/u4g4te.png)](https://whatsapp.com/channel/0029VbAfF6f1dAw7hJidqS0i)
+[![DARK-BOY Logo](https://files.catbox.moe/fta4xd.jpg)](https://whatsapp.com/channel/0029VbAfF6f1dAw7hJidqS0i)
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&random=false&width=435&lines=𝑻𝑯𝑰𝑺+𝐈𝐒+𝔻𝔸ℝ𝕂-𝔹𝕆𝕐+𝑴𝑨𝑫𝑬+𝑩𝒀+DARK-DEV+🍷" alt="Typing SVG" /></a>
 
